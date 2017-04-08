@@ -1,3 +1,0 @@
-tfryt
-trt
-tdftg
